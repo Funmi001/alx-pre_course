@@ -1,1 +1,1 @@
-Grit is the new deal
+Let me tell you about my tutor, his name is Mr Samuel. 
